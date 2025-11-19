@@ -1,0 +1,1 @@
+# Lomba_Informatika_SMAPA
